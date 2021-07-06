@@ -1,2 +1,2 @@
 # kaushikmupadhya.github.io
-Github page for kaushikmupadhya :P...
+Personal Website of Kaushik Manjunatha.
